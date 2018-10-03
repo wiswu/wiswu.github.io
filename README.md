@@ -7,24 +7,27 @@
 
 ##### You are on "wu wu wu dot wu is wu yu dot org"
 
+<br>
+
 The letter "w" is the pariah of the English alphabet. The pronunciation of "w" is an ancient thorn in the side of English speakers inherited through generations. It's time we take matters into our own hands, as the communal owners of the language and pluck the thorn out once and for all!
 
 <br>
 
 ## Mission
 
+<br>
+
 We challenge the status quo and seek to set a precedent of active participation in language evolution. Too many people accept language as it comes without questioning. Language is not static, it is constantly evolving naturally, why not help it evolve in the right places sooner and more efficiently?
 
 The change we want is simple - "w" should be pronounced _wu_.
 
-<br>
 <br>
 
 ## Facts
 
  * _double yu_ is 2 syllables too cumbersome.
 
- * The letter "w" is the only letter which has a name that describes it's appearance and we all know it's wrong to judge by appearance.
+ * The letter "w" is the only letter which has a name that describes it's appearance... and we all know how  wrong it is to judge by appearance.
 
  * In German, "w" is pronounced _ve_ and what rolls off the tongue smoother: _bee em double yu_ or _bee em ve_?
     In English, _ve_ can be confused with the letter "v" so we're proposing _wu_.
