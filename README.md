@@ -2,7 +2,7 @@
 
 ## Wu-lcome!
 
-##### You are one "wu wu wu dot wu is wu yu dot org"
+##### You are on "wu wu wu dot wu is wu yu dot org"
 
 The letter "w" is the pariah of the English alphabet. The pronunciation of "w" is an ancient thorn in the side of English speakers inherited through generations. It's time we take matters into our own hands, as the communal owners of the language and pluck the thorn out once and for all!
 
