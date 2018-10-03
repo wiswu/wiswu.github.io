@@ -1,16 +1,23 @@
  > "w is wu" pronounced "wu is wu". Don't you _dare_ say _double yu is wu_ when you refer to this site!
 
-## Wu-lcome!
+## _Wu_-lcome!
+
+<br>
 
 ##### You are on "wu wu wu dot wu is wu yu dot org"
 
 The letter "w" is the pariah of the English alphabet. The pronunciation of "w" is an ancient thorn in the side of English speakers inherited through generations. It's time we take matters into our own hands, as the communal owners of the language and pluck the thorn out once and for all!
+
+<br>
 
 ## Mission
 
 We challenge the status quo and seek to set a precedent of active participation in language evolution. Too many people accept language as it comes without questioning. Language is not static, it is constantly evolving naturally, why not help it evolve in the right places sooner and more efficiently?
 
 The change we want is simple - "w" should be pronounced _wu_.
+
+<br>
+<br>
 
 ## Facts
 
