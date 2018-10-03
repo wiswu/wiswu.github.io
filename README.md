@@ -32,7 +32,7 @@ The change we want is simple - "w" should be pronounced _wu_.
  * In German, "w" is pronounced _ve_ and what rolls off the tongue smoother: _bee em double yu_ or _bee em ve_?
     In English, _ve_ can be confused with the letter "v" so we're proposing _wu_.
 
- * Most English letters can incorporate the sound of the letter with the letter itself (eg. a - aye, b - bee, c.... anyway you get the point!)
+ * Most English letters can incorporate the sound of the letter with the letter itself (eg. a - _aye_, b - _bee_, _c_... anyway you get the point!)
 
 
 <br>
