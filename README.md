@@ -4,4 +4,4 @@ There is a fundamental linguistic issue in the English alphabet -- the letter w'
 
 The change we want is simple - W should be pronounced "wu" because "double u" is too cumbersome and is not as consistent as "wu" is in incorporating the sound of a letter with the letter itself (eg. a - aye, b - bee, c is not consistent etc.)
 
-
+ > www.wiswu.org is pronounced "wu wu wu dot wu is wu yu dot org"
