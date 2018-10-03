@@ -1,8 +1,8 @@
  > "w is wu" pronounced "wu is wu".
 
- ## Wu-lcome!
+## Wu-lcome!
 
-###### You are one "wu wu wu dot wu is wu yu dot org"
+##### You are one "wu wu wu dot wu is wu yu dot org"
 
 We are challenging the unquestioned and archaic system of the English alphabet. One particularly frustrating fundamental linguistic issue with the English alphabet is the pronunciation of the letter "w".
 
@@ -13,6 +13,9 @@ In German, "w" is pronounced "ve" and what rolls off the tongue smoother, "bee e
 We want to challenge the status quo and set a precedent of active participation in language evolution. Too many people accept language as it comes without questioning. Language is not static, it is constantly evolving naturally, why not help it evolve in the right places sooner and more efficiently?
 
 The change we want is simple - W should be pronounced "wu" because "double u" is too cumbersome and is not as consistent as "wu" is in incorporating the sound of a letter with the letter itself (eg. a - aye, b - bee, c is not consistent etc.)
+
+<br>
+<br>
 
 ## Questions
 
