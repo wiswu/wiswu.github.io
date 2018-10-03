@@ -1,6 +1,4 @@
-# "W" is _wu_
-
-w is wu pronounced "wu is wu".
+ > w is wu pronounced "wu is wu".
 
 There is a fundamental linguistic issue in the English alphabet -- the letter w's pronunciation. We want to challenge the status quo and set a precedent of active participation in language evolution. Too many people accept language as it comes without questioning. Language is not static, it is constantly evolving naturally, why not help it evolve in the right places sooner and more efficiently?
 
