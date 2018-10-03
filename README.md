@@ -1,4 +1,5 @@
- > "w is wu" pronounced "wu is wu". Don't you _dare_ say _double yu is wu_ when you refer to this site!
+ > "w is wu" pronounced "wu is wu".
+ > Don't you *dare* say _double yu is wu_ when you refer to this site!
 
 ## _Wu_-lcome!
 
